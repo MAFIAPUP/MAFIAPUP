@@ -44,7 +44,7 @@
   
   Chance — Forsaken Yumeshipper , doubles IWC , i don't mind cosplayers or kins , but don't expect me to treat you romantically.
   
-  Mafioso kin — Forsaken , Doubles IWC or DNI
+  Mafioso kin — Forsaken , Doubles DNI
 Captain Red — Among us show , Questioning Kin
 </p>
 </details>
