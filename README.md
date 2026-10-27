@@ -45,7 +45,7 @@
   Chance — Forsaken Yumeshipper , doubles IWC , i don't mind cosplayers or kins , but don't expect me to treat you romantically.
   
   Mafioso kin — Forsaken , Doubles IWC or DNI
-  Captain Red — Among us show , Questioning Kin
+Captain Red — Among us show , Questioning Kin
 </p>
 </details>
 
@@ -81,14 +81,14 @@
 <div align= "center">
   Im Brazillian , English is not my first language , don't expect me to write correctly all the time , especially since my body is weak most of the time now.
   
-  Be patient with me , im a sensitive person , don't be rude to me or i will be to you back.
+Be patient with me , im a sensitive person , don't be rude to me or i will be to you back.
   
-  I have trust and abandonment issues , don't get upset if i don't trust you , especially when im upset , im not a bad person , just hurt.
+ I have trust and abandonment issues , don't get upset if i don't trust you , especially when im upset , im not a bad person , just hurt.
 </p>
 </details>
 
-<p align="center"> 𐔌  .  txt txt txt txt  ,  txt txt info info txt txt .  !  ୧ </p>
-<p align="center"> 𐔌  .  txt txt  ,  info info  .  !  ୧ </p>
+<p align="center"> 𐔌  .  Considered the Mafioso of PT by my friends , tho i don't have much titles .  !  ୧ </p>
+<p align="center"> 𐔌  .  Remember , im friendly , just always IWC , free to cuddles or whispers if you wanna talk with me .  !  ୧ </p>
 <p align="center"> •ﻌ• </p>
 
 <p align="center">╚══════════✿══════✿═════════╝ </p>
