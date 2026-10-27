@@ -13,9 +13,9 @@
 <p align="center"> ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ </p>
 <p align="center"> ╔═══════════✿══════✿═══════════╗ </p>
 
-<p align="center"> 𖥻 ׁ ׅ  name  𓂃 ou ⤷ ༄.° name2 ! ׁ ׅ </p>
+<p align="center"> 𖥻 ׁ ׅ  Livy  𓂃 ou ⤷ ༄.° Mafioso ! ׁ ׅ </p>
 
-<p align="center"> 𐂯 ૮ ˙Ⱉ˙ ა rawr!  insertkin ⤶ . </p>
+<p align="center"> 𐂯 ૮ ˙Ⱉ˙ ა rawr!  Don ⤶ . </p>
 
 
 <!--INFO-->
@@ -25,11 +25,11 @@
     $${\Large\textbf{  information + boundaries .}}$$
   </summary>
 <div align= "center">
-   txt txt txt txt , info info info , txt txt txt
+   Mafioso kin , doubles interact with extreme care or hide/block me , please don't treat me as a roleplayer , especially in Mafioso cosplays ,i don't mind Forsaken characthers interacting.
   
-  txt txt txt , info info , txt txt txt
+  I'm a yumeshippers , haters dni , i don't care what you think , It brings me comfort.
   
-  txt info txt
+  Don't get me into drama , i can't get stressed due to medical and mental reasons , if you have any problem with me , interact with care or whisper
 </p>
 </details>
 
@@ -40,11 +40,12 @@
     $${\Large\textbf{  interests + yumes/kins .}}$$
   </summary>
 <div align= "center">
-   txt txt txt txt , info info info , txt txt txt
+   Bon the Hare — The Walten Files (TWF) Yumeshipper , doubles strict DNI and block me.
   
-  txt txt txt , info info , txt txt txt
+  Chance — Forsaken Yumeshipper , doubles IWC , i don't mind cosplayers or kins , but don't expect me to treat you romantically.
   
-  txt info txt
+  Mafioso kin — Forsaken , Doubles IWC or DNI
+  Captain Red — Among us show , Questioning Kin
 </p>
 </details>
 
@@ -63,11 +64,11 @@
     $${\Large\textbf{  friends + oomfs .}}$$
   </summary>
 <div align= "center">
-  txt txt txt txt , txt txt txt , txt txt txt
+  Im always near my beloved friends and oomfs , shout out to everyone <3.
 
-  txt txt txt , txt txt , txt txt txt
+  I don't stay much online when i am alone , Tho everyone is free to interact and cuddle me , i don't bite
   
-  txt txt txt
+  My beloved Bunnies: Alex , Vivian / Logan , Toejam , Crash , Shanty , Elliot , Fish , and Clover.
 </p>
 </details>
 
@@ -78,11 +79,11 @@
     $${\Large\textbf{  extra .}}$$
   </summary>
 <div align= "center">
-  txt txt txt txt , info info info , txt txt txt
+  Im Brazillian , English is not my first language , don't expect me to write correctly all the time , especially since my body is weak most of the time now.
   
-  txt txt txt , info info , txt txt txt
+  Be patient with me , im a sensitive person , don't be rude to me or i will be to you back.
   
-  txt info txt
+  I have trust and abandonment issues , don't get upset if i don't trust you , especially when im upset , im not a bad person , just hurt.
 </p>
 </details>
 
