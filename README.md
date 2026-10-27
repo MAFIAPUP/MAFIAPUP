@@ -87,7 +87,7 @@ Be patient with me , im a sensitive person , don't be rude to me or i will be to
 </p>
 </details>
 
-<p align="center"> 𐔌  .  Considered the Mafioso of PT by my friends , tho i don't have much titles .  !  ୧ </p>
+<p align="center"> 𐔌  .  Im a minor and i use He/Him or He/it pronouns , i don't mind They/They tho.  !  ୧ </p>
 <p align="center"> 𐔌  .  Remember , im friendly , just always IWC , free to cuddles or whispers if you wanna talk with me .  !  ୧ </p>
 <p align="center"> •ﻌ• </p>
 
