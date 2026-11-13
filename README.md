@@ -66,7 +66,7 @@
 <div align= "center">
   Im always near my beloved friends and oomfs , shout out to everyone <3.
 
-  I don't stay much online when i am alone , Tho everyone is free to interact and cuddle me , i don't bite
+  I don't stay much online when i am alone ,  Always ask for interact and cuddle me , i don't bite
   
   My beloved Bunnies: Alex , Vivian / Logan , Toejam , Crash , Shanty , Elliot , Fish , and Clover.
 </p>
