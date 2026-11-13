@@ -27,7 +27,7 @@
 <div align= "center">
    Mafioso kin , doubles interact with extreme care or hide/block me , please don't treat me as a roleplayer , especially in Mafioso cosplays ,i don't mind Forsaken characthers interacting.
   
-  I'm a yumeshippers , haters dni , i don't care what you think , It brings me comfort.
+  I'm a yumeshippers , antis dni
   
   Don't get me into drama , i can't get stressed due to medical and mental reasons , if you have any problem with me , interact with care or whisper
 </p>
@@ -45,7 +45,7 @@
   Chance — Forsaken Yumeshipper , doubles IWC , i don't mind cosplayers or kins , but don't expect me to treat you romantically.
   
   Mafioso kin — Forsaken , Doubles DNI
-Captain Red — Among us show , Questioning Kin
+ Captain Red — Among us show , Questioning Kin
 </p>
 </details>
 
